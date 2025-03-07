@@ -1,1 +1,3 @@
 # LINK DEL VIDEO: https://youtu.be/sUX6xo7mHVY
+
+# LINK DE DESCARGA DE LA GUIA: https://github.com/LuisRicado77/SEGUNDO-TALLER-SD-1-CORTE/blob/de91fefe40adcc1d3b5654972aa8887e5bebc3a0/GUIA%20-%20EJEMPLO%20LipeRMI%20IMC.pdf
